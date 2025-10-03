@@ -1,0 +1,1 @@
+En este proyecto se redacto un poco sobre quien soy, que fue de mi niñez y lo que me inspiro a llgar hasta aqui, ademas de mis planes a futuro, sobre lo que espero de mi carrera, ademas de un poco sobre mis gustos personales como la musica, y animales favoritos
